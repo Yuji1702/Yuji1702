@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on different projects regarding Cyber Security and AIML
 - 📫 Contact Me on my mail :-  dhruvaeron570@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have been on a 3 E-Sports Team and currently focusing on my youtube with learning about cyber-security
+
 - Looking for a good internship to learn cyber security practices <3
 
 <!---
